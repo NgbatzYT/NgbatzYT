@@ -1,7 +1,7 @@
 ## Hello
-I'm Ngbatz I used to make mods for Gorilla Tag but I no longer am due to how toxic the modding community is.
+I'm Ngbatz I'm the founder of NgbatzStudios.
 
-I now make games well I have for a while.
+I make games and software.
 
 ## Some Github information
 
